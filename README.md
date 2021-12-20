@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://slavikaht.github.io/rsschool-cv/cv
